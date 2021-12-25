@@ -16,13 +16,7 @@ https://github.com/mrclmlt/breviario-adventoenatal/raw/main/28dezStosInocentes02
 
 Antes da foto do link acima, vem isso:
 
-Hino da Hora Média: https://github.com/mrclmlt/breviario-adventoenatal/raw/main/NatalHinos03.png
-
-Salmos da Hora Média da I terça-feira:
-
-https://github.com/mrclmlt/breviario-salterio/raw/main/1.3.2.a.jpg
-
-https://github.com/mrclmlt/breviario-salterio/blob/main/1.3.2.b.jpg
+Hino da Hora Média: https://github.com/mrclmlt/breviario-adventoenatal/raw/main/NatalHinos03.png; salmos da Hora Média da I terça-feira:  https://github.com/mrclmlt/breviario-salterio/raw/main/1.3.2.a.jpg e https://github.com/mrclmlt/breviario-salterio/blob/main/1.3.2.b.jpg
 
 Vésperas:
 
