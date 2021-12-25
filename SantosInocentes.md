@@ -13,6 +13,17 @@ https://github.com/mrclmlt/breviario-salterio/raw/main/1.1.1.c.jpg
 Laudes: final das preces e oração. Hora Média (antífona: Maria guardava no seu coração as palavras e os fatos, e neles pensava).
 
 https://github.com/mrclmlt/breviario-adventoenatal/raw/main/28dezStosInocentes02.png
+
+Antes da foto do link acima, vem isso:
+
+Hino da Hora Média: https://github.com/mrclmlt/breviario-adventoenatal/raw/main/NatalHinos03.png
+
+Salmos da Hora Média da I terça-feira:
+
+https://github.com/mrclmlt/breviario-salterio/raw/main/1.3.2.a.jpg
+
+https://github.com/mrclmlt/breviario-salterio/blob/main/1.3.2.b.jpg
+
 Vésperas:
 
 hino, antífonas, salmos e cântico como nas II vésperas do natal:
