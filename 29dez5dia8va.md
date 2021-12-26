@@ -20,7 +20,12 @@ Hino e antífona:
 
 https://github.com/mrclmlt/breviario-adventoenatal/raw/main/NatalHinos03.png
 
-Linkar os salmos da I quarta-feira. Oração igual a Laudes.
+https://github.com/mrclmlt/breviario-salterio/raw/main/1.4.2.a.jpg
+
+https://github.com/mrclmlt/breviario-salterio/raw/main/1.4.2.b.jpg
+
+https://github.com/mrclmlt/breviario-adventoenatal/raw/main/29dezQuintoDiaNaOitava03.png
+
 
 Vésperas
 
