@@ -8,7 +8,7 @@ https://github.com/mrclmlt/breviario-proprio-dos-santos
 
 https://github.com/mrclmlt/breviario-salterio
 
-29 de dezembro ou quinto dia na oitava --> passar pro site
+29 de dezembro ou quinto dia na oitava --> passar pro site: ok
 
 https://github.com/mrclmlt/breviario-organizacao/blob/main/29dez5dia8va.md
 
