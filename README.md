@@ -38,7 +38,7 @@ Cristo, nascido da Virgem Maria, criança admirável e príncipe da paz,
 
 https://raw.githubusercontent.com/mrclmlt/breviario-adventoenatal/main/S2.png fim de laudes, HM e início de II vésperas
 
-HM: providenciar a salmodia complementar p. 1135
+https://oficiodvn.blogspot.com/2021/12/salmodia-complementar-para-hora-media-p.html salmodia complementar p. 1135
 
 https://github.com/mrclmlt/breviario-comum-dos-santos/blob/main/comumNSra06.jpg salmos e cântico de II vésperas do comum de N.Srª início
 
